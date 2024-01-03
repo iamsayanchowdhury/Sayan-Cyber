@@ -31,7 +31,7 @@ Feel free to explore my repositories for more!
 ## Connect with Me
 
 - 📧 Email: iamsayanchowdhury2000@gmail.com
-- 💼 LinkedIn: www.linkdin.com/in/sayanchowdhury
+- 💼 LinkedIn: www.linkedin.com/in/sayanchowdhury
 - 🐦 Twitter: 
 - 🌐 Website: In Progress
 
