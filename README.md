@@ -32,7 +32,6 @@ Feel free to explore my repositories for more!
 
 - 📧 Email: iamsayanchowdhury2000@gmail.com
 - 💼 LinkedIn: www.linkedin.com/in/sayanchowdhury
-- 🐦 Twitter: 
 - 🌐 Website: In Progress
 
 ## Fun Facts
